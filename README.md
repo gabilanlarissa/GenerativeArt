@@ -7,4 +7,4 @@ Two files are available:
 I appreciate your support! ♥
 
 If you want to buy me a coffee:
-https://www.buymeacoffee.com/hybridflower
+buymeacoffee.com/hybridflower
